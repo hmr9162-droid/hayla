@@ -13,7 +13,8 @@ Motion Image Archiving
 
 and Preservation student 
 
-at NYU.   
+at NYU.  
+
 
 
       
