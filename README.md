@@ -8,7 +8,7 @@
 ꒰ა ₍ᐢ.  ̫.ᐢ₎ ໒꒱ 
 
          
-hi, I'm Hayla!
+Hi, I'm Hayla!
 
    
 𝕨𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠  
