@@ -3,9 +3,9 @@
   ────୨ৎ────. 
 
     
-My name is H✰yla. 
+My name is ፧h፧፧a፧፧y፧፧l፧፧a፧. 
 
-I am a first year. 
+I am a second year. 
 
 Motion Image Archiving. 
 
@@ -21,7 +21,7 @@ github page!
 
     
 
-────୨ৎ────. 
+  ────୨ৎ────. 
 
   ﾟ   
   
@@ -30,30 +30,20 @@ github page!
    ⋆   
    
 
-           ⋆   
+            
            
 ⋆   
 
-     ⋆   
-     
-     
-    ☁︎. 
+  
     
     
   ⋆        
-    ⋆. 
+     ⋆ 
     
-      ⋆       
-      
-      ⋆. 
+     
 
    ﾟ       ☾   ⋆ 
    
  ⋆      
  
-     ⋆    
-       ⋆. 
-       
-
-       
-       ⋆  
+  
