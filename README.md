@@ -3,7 +3,9 @@
    ────୨ৎ────. 
 
     
-My name is  hᆞᆞaᆞᆞyᆞᆞlᆞᆞa 
+My name is  
+
+hᆞᆞaᆞᆞyᆞᆞlᆞᆞa 
 
 I am a second year 
 
@@ -31,12 +33,3 @@ github page!
 
          
     
-     
-
-   ﾟ       ☾    
-  
- ⋆       
-          ⋆    
-          
- 
-  
