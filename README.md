@@ -3,18 +3,18 @@
    ────୨ৎ────. 
 
     
-My name is ፧h፧፧a፧፧y፧፧l፧፧a፧. 
+My name is ᆞhᆞᆞaᆞᆞyᆞᆞlᆞᆞaᆞ 
 
-I am a second year. 
+I am a second year 
 
-Motion Image Archiving. 
+Motion Image Archiving 
 
-and Preservation student. 
+and Preservation student 
 
 at NYU. 
 
 
-Welcome to my. 
+Welcome to my 
 
 github page!  
 
@@ -23,27 +23,17 @@ github page!
 
   ────୨ৎ────. 
 
-  ﾟ   
-  
 
 
-   ⋆   
-   
 
-            
-           
-⋆   
 
-  
-    
-    
-  ⋆        
-     ⋆ 
     
      
 
-   ﾟ       ☾   ⋆ 
-   
- ⋆      
+   ﾟ       ☾    
+  
+ ⋆       
+          ⋆    
+          
  
   
