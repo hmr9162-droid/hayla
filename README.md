@@ -1,32 +1,59 @@
 
-#────୨ৎ────
+  
+  ────୨ৎ────. 
+
+    
 My name is H✰yla. 
-I am a first year 
-Motion Image Archiving 
-and Preservation student 
+
+I am a first year. 
+
+Motion Image Archiving. 
+
+and Preservation student. 
+
 at NYU. 
 
-Welcome to my 
-github page!
 
-────୨ৎ────
-  ﾟ 
+Welcome to my. 
+
+github page!  
 
 
-   ⋆ 
-
-           ⋆ 
-⋆ 
-     ⋆ 
-     
-    ☁︎
     
-  ⋆       ⋆
-      ⋆          ⋆. 
 
-   ﾟ       ☾ ⋆
- ⋆     
-     ⋆        ⋆
+────୨ৎ────. 
+
+  ﾟ   
+  
+
+
+   ⋆   
+   
+
+           ⋆   
+           
+⋆   
+
+     ⋆   
+     
+     
+    ☁︎. 
+    
+    
+  ⋆        
+    ⋆. 
+    
+      ⋆       
+      
+      ⋆. 
+
+   ﾟ       ☾   ⋆ 
+   
+ ⋆      
+ 
+     ⋆    
+       ⋆. 
+       
 
        
        ⋆  
