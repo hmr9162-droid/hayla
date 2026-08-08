@@ -13,17 +13,15 @@ Motion Image Archiving
 
 and Preservation student 
 
-at NYU. 
+at NYU.   
 
 
-
+      
    
 
 w ♥ e ♥ l ♥ c ♥ o ♥ m ♥ e 
 
-to my 
-
-github page!  
+to my page!  
 
 
     
