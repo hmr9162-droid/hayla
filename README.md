@@ -5,7 +5,7 @@
     
 My name is  
 
-h♥a♥y♥l♥a
+h ♥ a ♥ y ♥ l ♥ a
 
 I am a second year 
 
@@ -19,7 +19,7 @@ at NYU.
 
    
 
-w♥e♥l♥c♥o♥m♥e 
+w ♥ e ♥ l ♥ c ♥ o ♥ m ♥ e 
 
 to my 
 
