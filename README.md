@@ -7,16 +7,10 @@ My name is
 
 h ♥ a ♥ y ♥ l ♥ a
 
-I am a second year 
-
-Motion Image Archiving 
-
-and Preservation student 
-
-at NYU.  
 
 
-
+  ────୨ৎ────   
+  
       
    
 
@@ -27,5 +21,5 @@ to my page!
 
     
 
-  ────୨ৎ──── 
+
 
